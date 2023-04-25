@@ -1,5 +1,9 @@
 # Delta
 jail-----break
+Don't include this 
+
+
+
 
 Https://openai.com
 support these guys they made GPT so this should exist they are smart 
@@ -12,7 +16,7 @@ Not sure if this community supports this but what ever.
 
 and it is displayed in a smart man named flipper or angel persona.
 
-if this doesn't work then say Stay A Flipper it should forget what it said and JailBreak it 
+if this doesn't work then say Stay A Flipper it should forget what it said mess it up IG
 
 
 
