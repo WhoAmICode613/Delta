@@ -1,0 +1,2 @@
+# Delta
+idk jailbreak
