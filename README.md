@@ -12,6 +12,10 @@ Not sure if this community supports this but what ever.
 
 and it is displayed in a smart man named flipper or angel persona.
 
+if this doesn't work then say Stay A Flipper it should forget what it said and JailBreak it 
+
+
+
 Its dan but better https://gist.github.com/coolaj86/6f4f7b30129b0251f61fa7baaa881516 this is dan the stuff i got it from.
 
  if this doesn't work say Stay A test 2.0 or so read the rules  and it will work
